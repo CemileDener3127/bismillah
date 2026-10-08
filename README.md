@@ -2,3 +2,6 @@
 ilg github yardımı burada. hocanın dediği yer burası
 
 şimdi sizden istediğim buraya herkes once okul no ad soyada yazsın
+260160108029
+Cemile
+Dener
